@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BangtanGirl94
+- 👋 Hi, I’m @meba-tesfaye
 - 👀 I’m interested in Graphics Desgin and Information Technology
 - 🌱 I’m currently learning Project Managemnet and Software Engineering
 - 💞️ I’m looking to collaborate on ...
